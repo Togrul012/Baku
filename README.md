@@ -1,0 +1,2 @@
+# Baku
+Bakının gözəl yerləri
